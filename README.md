@@ -35,9 +35,49 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-Troia Britanica: or, Great Britaines Troy A poem deuided into XVII. seuerall cantons, intermixed wit
+
+1. To the Right Honourable Edward Earle of Worcester, Lord of Chepstoll, Ragland, and Gower, Knight of the most Noble order of the Garter, Mayster of the Horse, and one of the Kinges most Honourable Priuy Councell.
+
+1. TO the two-fold Readers: the Courteous, and the Criticke.
+
+1. Proemium.
+
 #####Body#####
-Troia Britanica: or, Great Britaines Troy A poem deuided into XVII. seuerall cantons, intermixed wit
+
+1. CANTO. 1.
+
+1. CANTO. 2.
+
+1. CANTO. 3.
+
+1. CANTO. 4.
+
+1. CANTO. 5.
+
+1. CANTO. 6. 
+
+1. CANTO. 7.
+
+1. CANTO. 8. 
+
+1. CANTO. 9.
+
+1. CANTO. 10. Hellen to Paris.
+
+1. CANTO. 11.
+
+1. CANTO. 12. 
+
+1. CANTO. 13. 
+
+1. CANTO. 14. 
+
+1. CANTO. 15.
+
+1. CANTO. 16. 
+
+1. CANTO. 17.
+
 **Types of content**
 
   * There are 15267 **verse** lines!
